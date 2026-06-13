@@ -1,2 +1,2 @@
 # My-new-prepositories
-new discrepancy  just chang
+new edited repo
